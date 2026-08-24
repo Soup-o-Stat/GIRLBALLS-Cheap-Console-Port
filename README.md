@@ -8,5 +8,5 @@ and sticky?? XD!
 
 want 2 b bouncy with all ur friendz? well now u can in YOUR POCKET! :P
 
-* Download port -->
+* Download port --> https://github.com/Soup-o-Stat/GIRLBALLS-Cheap-Console-Port/releases/tag/cool_tag
 * Download original game --> https://3denemy.itch.io/girlballs
